@@ -26,7 +26,7 @@ Use Discord primarily for communication. You can be in contact with the course t
 
 ## Timetable
 
-The course will be open until the end of the year 2023.
+The course will be open until the end of the year 2024.
 
 ## Lectures
 
